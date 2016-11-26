@@ -4,5 +4,3 @@ hello world program
 PRIDANÉ
 
 Ahojtéééé mimozemstania!!!!
-
-PRIDANÉ
