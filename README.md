@@ -1,4 +1,8 @@
 # hello-world
 hello world program
 
-Ahojte mimozemstania!
+PRIDANÉ
+
+Ahojtéééé mimozemstania!!!!
+
+PRIDANÉ
